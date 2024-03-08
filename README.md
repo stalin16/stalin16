@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning **Big Data**
 
-- 📫 How to reach me **stalin16112003@gmail.com**
+- 📫 My Email **stalin16112003@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
